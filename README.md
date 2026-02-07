@@ -1,2 +1,2 @@
-# daily-project-2026-02-07
+# first-project-2026-02-07
 
